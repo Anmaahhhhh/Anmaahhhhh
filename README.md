@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Anmaahhhhh
+- 👀 I’m interested in learning ai
+- 🌱 I’m currently learning 12th standard
+- 📫 How to reach me @_a.nm_a
+- ⚡ Fun fact: i lov chocolate
